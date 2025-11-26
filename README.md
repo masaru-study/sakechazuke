@@ -1,1 +1,1 @@
-shizuoka
+shizuoka→新横浜
