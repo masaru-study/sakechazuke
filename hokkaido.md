@@ -1,1 +1,1 @@
-shinhakodatehokuto→木古内
+shinhakodatehokuto→木古内→奥津軽今別
