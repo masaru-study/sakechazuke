@@ -1,0 +1,1 @@
+shinhakodatehokuto→木古内
